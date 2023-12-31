@@ -1,0 +1,1 @@
+# Klasyfikator-detali-polimerowych1
